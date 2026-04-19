@@ -1,6 +1,6 @@
 # Hi, I'm Yash 👋
 
-**AI Engineer · Hyderabad · UST Global**
+**AI Engineer**
 
 ---
 
